@@ -1,2 +1,2 @@
 20213100 홍승현
-kookmin Univ. sw
+kookmin Univ. sw dept.
